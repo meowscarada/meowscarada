@@ -6,6 +6,7 @@ autistic + physically disabled
 ![](https://cdn.discordapp.com/attachments/842768787462946847/1033779742664568963/52F049B7-86DC-406B-AA3C-E1F57842DCC0.gif) **interests:** pokemon, splatoon, dungeon meshi, devils candy
 
 **dni:** fnf / genshin / southpark / dsmp fans, proshippers, endo "systems", or use the term "d/a"
+pokepasta fans are on thin ice idk you all are so weird
 
 **int:** pokemon fans!!!!! (especially if you like mystery dungeon, rangers, and oras), or if you like splatoon, dungeon meshi, or devils candy!!
 
