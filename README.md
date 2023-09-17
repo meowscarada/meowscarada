@@ -1,5 +1,5 @@
 **alex / elliot** ![](https://cdn.discordapp.com/attachments/848718631323435038/1153087353175412887/snivy.gif) he/him agender
-autistic ![](https://cdn.discordapp.com/emojis/1109995301261033482.gif?size=240&quality=lossless) 18
+autistic ![](https://cdn.discordapp.com/emojis/1109995301261033482.gif?size=240&quality=lossless)  18
 
 ***
 
